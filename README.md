@@ -1,0 +1,2 @@
+# CSGO COPY CFG 
+
